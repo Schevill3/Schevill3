@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Schevill Lynder
+## 👋 Hi, I'm Schevill Imbuhirah
 
 ## 🌍 About Me
 
